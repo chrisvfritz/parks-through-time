@@ -1,4 +1,4 @@
-## As seen on RageGaming
+## As seen on RageGaming (WARNING: Profanity)
 
 [![Click here to watch video](http://img.youtube.com/vi/2Kcm7kid33Y/0.jpg)](https://www.youtube.com/watch?v=2Kcm7kid33Y&t=16m9s)
 
